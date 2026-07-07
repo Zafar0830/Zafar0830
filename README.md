@@ -1,1 +1,1 @@
-## Hi there 👋 I'm Zafar Gulomov <img src="https://www.flaticon.com/free-animated-icon/hi_10246744" width="30px">  
+## Hi there 👋 I'm Zafar Gulomov <img src="https://cdn-icons-mp4.flaticon.com/512/12744/12744452.mp4">  
