@@ -25,5 +25,5 @@ System Administrator va DevOps Engineer yo'nalishlarida faoliyat olib boradigan 
 ---
 
 ### 📫 Men bilan bog'lanish:
-- **Telegram:** [@Zafar0830]
+- **Telegram:** [@Zafar0830](https://t.me/Zafar0830)
 - **GitHub:** [Zafar0830](https://github.com/Zafar0830)
